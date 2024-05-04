@@ -25,7 +25,7 @@
 
 #### Networking:
 
-- I extend my networking efforts beyond digital platforms, cultivating valuable connections via MuLearn, LinkedIn, and direct interactions. Through engaging with peers and professionals, I expand my network while remaining abreast of industry insights and trends. Furthermore, I demonstrate my commitment to ongoing learning by actively following the work of fellow professionals in my field.
+- I extend my networking efforts beyond digital platforms, cultivating valuable connections via MuLearn, LinkedIn, and direct interactions. Through engaging with peers and professionals, I expand my network while remaining abreast of industry insights and trends. Furthermore, I demonstrate my commitment to ongoing learning by actively following the work of fellow professionals in my field .
 
 #### Career Plan:
 
